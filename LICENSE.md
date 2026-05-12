@@ -1,4 +1,4 @@
-#  
+#  Experience survive lava for brainrots like never before with automatic survive lava for brainrots Script, the #1 Script. Includes no cooldown and
 
 
 
